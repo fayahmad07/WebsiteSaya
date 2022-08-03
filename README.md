@@ -1,2 +1,2 @@
-# khoirony.github.io
-CV dan Portofolio by Khoirony Arief
+# fayahmad07.github.io
+CV dan Portofolio by Ahmad Fayyadh
